@@ -1,1 +1,1 @@
-31 yo comp engineering student KTH Kista in Stockholm.
+31 yo first year comp engineering student at KTH Kista in Stockholm.
