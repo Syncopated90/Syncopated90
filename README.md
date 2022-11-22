@@ -1,1 +1,1 @@
-SEcond year comp engineering student at KTH Kista in Stockholm.
+Second year comp sci student at KTH Kista in Stockholm.
