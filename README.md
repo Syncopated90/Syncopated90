@@ -1,1 +1,1 @@
-Third year comp sci student at KTH Kista in Stockholm.
+Last year comp sci student at KTH Kista in Stockholm.
