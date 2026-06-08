@@ -1,1 +1,1 @@
-Last year comp sci student at KTH Kista in Stockholm.
+Engineer in computer engineering, KTH.
